@@ -1,0 +1,2 @@
+# bagulhodeparadigmas
+trabalho
